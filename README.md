@@ -1,2 +1,2 @@
 # Instalar-Moodle
-hola
+## Configuració

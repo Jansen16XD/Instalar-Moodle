@@ -4,4 +4,4 @@
 
 ![Captura desde 2025-04-07 17-50-18](https://github.com/user-attachments/assets/80523927-1603-4b60-b9d4-c8cbe4026d6d)
 ## Configuració
-# 1 
+## 1 

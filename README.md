@@ -4,6 +4,7 @@
 
 ![Captura desde 2025-04-07 17-50-18](https://github.com/user-attachments/assets/80523927-1603-4b60-b9d4-c8cbe4026d6d)
 ## Configuració
+
 ## 1
 ## a)
 ![Captura desde 2025-04-07 18-04-57](https://github.com/user-attachments/assets/6bb68206-f998-40f4-be95-6d743331c00a)
@@ -21,4 +22,8 @@
 ![Captura desde 2025-04-07 18-24-23](https://github.com/user-attachments/assets/350f5c10-cd19-4be2-a0f1-162a74606512)
 
 ## e)
+
+![Captura desde 2025-04-07 18-32-52](https://github.com/user-attachments/assets/c075739b-6c2f-462d-ba3a-d6e33837008c)
+
+## 2
 

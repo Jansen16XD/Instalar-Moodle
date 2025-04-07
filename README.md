@@ -44,3 +44,13 @@
 
 ## 4
 
+## a)
+
+![Captura desde 2025-04-07 19-27-36](https://github.com/user-attachments/assets/66e5957c-befa-42e1-96e5-d3b19dfddfea)
+
+## b)
+
+
+
+## c) 
+
